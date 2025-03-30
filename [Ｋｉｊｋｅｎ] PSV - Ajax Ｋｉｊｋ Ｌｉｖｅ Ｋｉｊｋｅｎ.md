@@ -1,7 +1,7 @@
-#[Ｋｉｊｋｅｎ] Ajax vs PSV Ｌｉｖｅ Ｋｉｊｋｅｎ  
+#[Ｋｉｊｋｅｎ] PSV - Ajax Ｋｉｊｋ Ｌｉｖｅ Ｋｉｊｋｅｎ  
   
   
-[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/lYTTHwI.php)  
+[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/WJdxWFd.php)  
   
 Als je op zoek bent naar een leuke terugkeer naar de Amblin avonturenfilms uit de jaren tachtig, kijk dan niet verder dan Shawn Levy ' s  originele sci-fi film, The Adam Project.
 De film gaat over een jonge jongen (breakoutster ), die ontdekt dat zijn toekomstige zelf () een astronaut is die op aarde is neergestort.
