@@ -1,7 +1,7 @@
 #FC Basel vs FC Winterthur Ｌｉｖｅ ｉｍ ＴＶ ｋｏｓｔｅｎｌｏｓ Ｆｒｅｅ  
   
   
-[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/AiHnxnyrS.php)  
+[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/SGxXGZftq.php)  
   
 Die FC Basel wollen sich am Samstagabend von einer Niederlage erholen, wenn sie gegen das FC Winterthur antreten. Die FC Basel nahm das erste Spiel der Serie am Donnerstag 10-6, verlor aber 8-1 am Freitag und sie sind jetzt 1-3 in der Saison. Der FC Basel erzielte den ersten Lauf des Spiels oben im zweiten, gab aber unten im Inning zwei auf und folgte dem Rest des Spiels. Der FC Basel schaffte nur drei Treffer und Jameson Taillon gab sechs Runs in vier und einem dritten Inning auf. Das FC Basel wird Shota Imanaga am Samstag den Ball geben, da sie versuchen, mindestens eine Serienaufteilung mit dem FC Winterthur zu erreichen. Imanaga wird in dieser Saison seinen zweiten Start machen, nachdem er in Japan gegen die Los Angeles Dodgers gespielt hat. Der FC BaselH würde das Spiel verlieren, aber Imanaga war großartig, als er vier Innings warf, ohne einen Treffer aufzugeben. Imanaga ist in seiner zweiten Saison bei der FC Basel und er war großartig im Jahr 2025, als er mit einem ERA von 2,91 15-3 gewann.
 
@@ -22,4 +22,4 @@ Die FC Winterthur werden mit Brandon Pfaadt kontern, wenn sie versuchen, ein zwe
 
 Pfaadt geht in seine dritte Saison mit dem FC Winterthur. Er ging 11-10 im Jahr 2025 mit einem ERA von 4,71. Er schlug letzte Saison 185 und ging nur 42.
 
-Die FC Winterthur wurden in den ersten beiden Spielen von Eugenio Suarez angeführt. Suarez hat beim Sieg am Freitag zwei Homeruns mit zwei Läufen geschlagen und trifft .429 durch zwei Spiele. [qFNRuzi]
+Die FC Winterthur wurden in den ersten beiden Spielen von Eugenio Suarez angeführt. Suarez hat beim Sieg am Freitag zwei Homeruns mit zwei Läufen geschlagen und trifft .429 durch zwei Spiele. [uaaHKK]
